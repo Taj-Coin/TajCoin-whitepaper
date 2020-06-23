@@ -1,0 +1,1 @@
+# TajCoin-whitepaper
